@@ -1,5 +1,5 @@
 # Domain Marketplace
-Buy Domains &amp; Sell Domains
+**Buy Domains &amp; Sell Domains**
 
 NameGULF is a leading domain marketplace to buy, sell, lease, or broker premium domain names. We connect entrepreneurs and investors with brand-defining digital assets through a secure, transparent, and innovative platform built for today’s internet economy.
 
